@@ -38,4 +38,4 @@ GenAI for Talent Acquisition & Onboarding (Coursera) · Strategic Leadership & M
 
 [LinkedIn](https://www.linkedin.com/in/aravindmadheshkumar/) · [Portfolio](https://aravindmadheshkumar-create.github.io) · aravindmadheshkumar@gmail.com
 
-*Open to Talent Acquisition / HR Analyst roles — Hyderabad and remote.*
+*Open to Talent Acquisition / HR Analyst roles*
